@@ -99,9 +99,9 @@ Web app deployment
 
 Haimabati Haripriya Sahu
 
-GitHub: https://github.com/your-username
+GitHub: https://github.com/Twinkle98-AI
 
-LinkedIn: https://www.linkedin.com/in/your-username
+LinkedIn:https://www.linkedin.com/in/haimabati-haripriya-sahu-2a3a1619b/
 
 ⭐ Support
 
